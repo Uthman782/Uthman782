@@ -1,4 +1,4 @@
-# 👋 Hi, I’m Uthman
+# 👋 Hi, I’m UTHMAN KHAN
 
 ### Basic Info:
 - 👀 **I’m interested in:** Artificial intelligence and web development
